@@ -10,4 +10,4 @@ Here are some ideas to get you started:
 - 💬 Ask me about pretty much anything.
 - 📫 How to reach me: via email (kyl3c0leman@gmail.com).
 - 😄 Pronouns: he/him.
-- ⚡ Fun fact: I'm an animal person...any and all animals.
+- ⚡ Fun fact: I'll likely die trying to pet an animal I shouldn't have.
